@@ -12,7 +12,7 @@ Call me Makaria or by the name of my Skin
 🩸 𝟭8+ server mostly by the Supes Area aka dc marvel ya get it whoop! or Cafe
 
 
-🩸 BIG DNi: TCC peeps stay away from me edgy ahhh ⋄
+🩸 BIG DNi: TCC peeps stay away from me edgy ahhh 💀
 
 🩸 DNI: Basic Criteria Such as Homophobia Transphobia ableist people will not be allowed here just don't be weird.  Cancel Culture. interacting romantically with me. If you don't like self shipping / Oc's cause that's basically my whole personality. 💀 if horror / Problematic characters make you uncomfortable such as Habit and Johnny Sawyer just dni. if you are a minor on a adult server. i will in fact hide and block you if you do / are any of the above.
 
