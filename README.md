@@ -33,6 +33,9 @@ Call me Makaria or by the name of my Skin
 
 𖥔 Skin wise i am mostly in Cosplay of the Media i have listed in Fandoms or my Ocs you are free to Take Inspo and you do not have to ask me just dont bland out copy them.
 
+![image](https://github.com/user-attachments/assets/58d5e06e-55d4-4a8b-aced-9f8a318e4b06)
+
+
 
 <!--
 **Johnnyslaughters/Johnnyslaughters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
