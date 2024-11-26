@@ -1,9 +1,4 @@
-## Ponytown info 
-
-<!--
-**Johnnyslaughters/Johnnyslaughters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
+## Ponytown info  
 Call me Makaria or by the name of my Skin
 
 ( she/her/hers )
@@ -41,5 +36,11 @@ Call me Makaria or by the name of my Skin
 -
 
 𖥔 Skin wise i am mostly in Cosplay of the Media i have listed in Fandoms or my Ocs you are free to Take Inspo and you do not have to ask me just dont bland out copy them.
+
+
+<!--
+**Johnnyslaughters/Johnnyslaughters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
 
 
