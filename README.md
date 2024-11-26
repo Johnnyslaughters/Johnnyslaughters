@@ -1,9 +1,9 @@
 ## Ponytown info  
 ![image](https://github.com/user-attachments/assets/1ddeb5c1-1b66-4143-be47-fb43cda70407)
 
-Call me Makaria or by the name of my Skin
+Call me Makaria or by the name of my Skin  
 
-( she/her/hers )
+( she/her/hers ) 
 
 ・・・・・
 
@@ -33,6 +33,7 @@ Call me Makaria or by the name of my Skin
 
 𖥔 Skin wise i am mostly in Cosplay of the Media i have listed in Fandoms or my Ocs you are free to Take Inspo and you do not have to ask me just dont bland out copy them.
 
+![image](https://github.com/user-attachments/assets/a752cbe5-c272-4e6f-b205-b2933cded5c2)
 
 
 
