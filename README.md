@@ -26,7 +26,7 @@ Call me Makaria or by the name of my Skin
 🩸 i do not tolerate Bullying or Hate comments of any kind towards myself i will simply ignore you cause i am not about to argue with someone who is spreading hate on a damn pony game lol. unfortunately this has happened before hence why i decided to make this page even though this is a game i do not play a lot.
 
 
-🩸I have Autism and english is not my first language i am not the greatest with Social situations as i am a very awkward Person, please communicate with me if you think i did something you do not like and let me know. communication is highly needed for me and i think since we are all on the 18+ server so i assume we are all adults so you should know to communicate, so we can solve it
+🩸 I have Autism and english is not my first language i am not the greatest with Social situations as i am a very awkward Person, please communicate with me if you think i did something you do not like and let me know. communication is highly needed for me and i think since we are all on the 18+ server so i assume we are all adults so you should know to communicate, so we can solve it
 
 
 🩸 please ask if you want any of my Socials i prefer to get to know you before randomly adding people ( i am still always allowed to decline )
