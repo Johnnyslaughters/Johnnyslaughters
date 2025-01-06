@@ -34,7 +34,7 @@ Call me Makaria or by the name of my Skin
 🩸 Fandoms: dc Marvel. The boys. invincible. Greek / Norse myth. Scott Pilgrim. Baldurs Gate. dungeons and Dragons. dragon Age. The Witcher. Silent Hill. The Sims. Resident Evil. FNAF. Arcane. Texas chainsaw Massacre. IT. Mortal Kombat. Disney. Zelda. Mario. sonic. Creepypasta. Harry Potter. Everymanhybrid. American Horror Story. Percy Jackson. Marble Hornets. 
 
 
-🩸 i do not tolerate Bullying or Hate comments of any kind towards myself this is infact harassment. and yes this has happend before while i was just simply sitting somewhere i will let you know that you in fact need to grow up and get a life if you think harassing people on a pony game is funny you are in fact not funny at all and not cool <3 i will ignore you and i will hide you.
+🩸 i do not tolerate Bullying or Hate comments of any kind towards myself i will hide you 
 
 
 🩸 I have Autism and english is not my first language i am not the greatest with Social situations as i am a very awkward Person, please communicate with me if you think i did something you do not like and let me know. communication is highly needed for me and i think since we are all on the 18+ server so i assume we are all adults so you should know to communicate, so we can solve it
