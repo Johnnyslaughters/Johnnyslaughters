@@ -28,13 +28,6 @@ Call me Makaria or by the name of my Skin
 🩸 DNI: Basic Criteria Such as Homophobia Transphobia ableist people will not be allowed here just don't be weird.  Cancel Culture. interacting romantically with me. If you don't like self shipping / Oc's cause that's basically my whole personality. 💀 if horror / Problematic characters make you uncomfortable such as Habit and Johnny Sawyer just dni. if you are a minor on a adult server. i will in fact hide and block you if you do / are any of the above.
 
 
-🩸 Main info: i am always off-tab so just give me a whisper, feel free to Friend me or sit with me just dont be weird cause i soft hide / block :) be aware i do have Dark Humor but i can tone it down if it makes you uncomfortable. i am not a very Social person so excuse me for that. i dont play this game a lot but when i do i am mostly just writing during it or listening to music. all my actions such as Booping people etc are strictly platonic i do in fact have a Boyfriend but he does not play this game besides i do not believe in a 'touch trigger' in this game.. its a Pony GAME get over it.
-
-
-🩸 i do not tolerate Bullying or Hate comments of any kind towards myself i will hide you 
-
-
-🩸 I have Autism and english is not my first language i am not the greatest with Social situations as i am a very awkward Person, please communicate with me if you think i did something you do not like and let me know. communication is highly needed for me and i think since we are all on the 18+ server so i assume we are all adults so you should know to communicate, so we can solve it
 
 
 
