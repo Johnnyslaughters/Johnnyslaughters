@@ -32,10 +32,6 @@ Call me Makaria or by the name of my Skin
 
 
 
-![image](https://github.com/user-attachments/assets/a752cbe5-c272-4e6f-b205-b2933cded5c2)
-
-
-
 ![image](https://github.com/user-attachments/assets/58d5e06e-55d4-4a8b-aced-9f8a318e4b06)
 
 
