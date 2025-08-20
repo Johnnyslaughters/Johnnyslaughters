@@ -23,9 +23,9 @@ Call me Makaria or by the name of my Skin
 🩸 𝟭8+ server mostly by the Supes Area aka dc marvel ya get it whoop! or Cafe / Spawn 
 
 
-🩸 BIG DNi: TCC peeps stay away from me edgy ahhh 💀
 
-🩸 DNI: Basic Criteria Such as Homophobia Transphobia ableist people will not be allowed here just don't be weird.  Cancel Culture. interacting romantically with me. If you don't like self shipping / Oc's cause that's basically my whole personality. 💀 if horror / Problematic characters make you uncomfortable such as Habit and Johnny Slaughter just dni. if you are a minor on a adult server. i will simply hide and block you if you do or are any of the above.
+
+🩸 DNI: I have the basic DNI criteria. I shouldn't need to go into detail. Homophobes, anti-LGBTQ, racists, sexist, pedo freaks, zoophiles transphobes, Ableist people, TCC people, Pro shippers, and so forth you Engage in Cancel Culture, Discourse, Ragebait, and yumedrama on the regular. interacting romantically or sexually with me. If you don't like self shipping / Oc's cause that's basically my whole personality. 💀 if horror / Problematic characters make you uncomfortable such as Habit and Johnny Slaughter just dni. if you are a minor on a adult server. i will simply hide and block you if you do or are any of the above.
 
 
 
